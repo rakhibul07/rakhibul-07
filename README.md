@@ -29,8 +29,6 @@ Here are some of the projects I'm proud of:
 
 
 
-## Connect with Me
-
 Let's connect and collaborate:
 
 
